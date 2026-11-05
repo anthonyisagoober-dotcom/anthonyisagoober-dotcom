@@ -1,4 +1,4 @@
-n amresksibidi## Hi there 👋
+im the goat namec is kirtt n amresksibidi## Hi there 👋
 
 <!--
 **anthonyisagoober-dotcom/anthonyisagoober-dotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
